@@ -1,0 +1,4 @@
+RECIEPE:
+
+boil milk , till then start making powder of oreo biscuits( using churner), 
+now pour some milk in the churner and then put some oreo powder(that you made earlier), now churn it , in 2-3 intervals keep doing the same. Now take a glass and pore some hersheys sirup with the help of spoon (this step is optional) now put some ice cubes , put 1 scoop of chocolate ice cream and some chocochip nuts on the top of it. now pore the shake that you made earlier. now to make it more tasty, you can put 2 scoops of ice cream , also you can put chocosticks and chocolate on the top of the reciepe. At last , put some chocochip nuts on the top of the shake. NOW YOUR CHOCOLATE CHOCOCHIP SHAKE IS READY :)
